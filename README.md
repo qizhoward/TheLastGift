@@ -10,5 +10,11 @@
               空中切断が好きです
               我喜欢空中截断
 
-
+          
+          I like serial explosions.Tandem explosion
+          連続爆発が好きです
+          我喜欢连环爆炸
+          
+          
+          
               
