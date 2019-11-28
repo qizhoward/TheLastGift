@@ -18,6 +18,6 @@
           　　
             　I like see boom one by one
               Look at the bombs one by one
-              爆弾を一つずつ見ます。
+              爆弾を一つずつ見ます
               看炸弹一个一个爆炸
               
