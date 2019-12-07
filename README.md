@@ -21,3 +21,11 @@
               爆弾を一つずつ見ます
               看炸弹一个一个爆炸
               
+              
+        
+        
+              READMET timeprogram write in people eye like as sea beautiful 
+              時間コードをプログラムして、目に入れてください。海のように美しいです。
+              将时间线编程时间线程序写进眼睛里跟大海一样美
+              
+              
